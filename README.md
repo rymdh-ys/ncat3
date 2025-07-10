@@ -3,7 +3,7 @@
 网飞猫是一个专注于提供丰富影视资源的视频播放平台，它整合了国内外众多热门影视作品，包括电影、电视剧、动漫、综艺以及Netflix的独家内容。用户可以通过网飞猫免费观看这些内容，无需注册或支付费用。其界面设计简洁明了，操作便捷，无过多广告干扰，为用户提供了良好的观影体验。此外，网飞猫支持多平台使用，包括Windows、Android、iOS以及网页版，用户可以在不同设备上无缝切换。
 
 <p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/14359.html" target="_blank" ><strong>网飞猫最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/yingshizaixiankan" target="_blank" ><strong>影视资源</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://yingshi.xxsnav.com/" target="_blank" ><strong>影视网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
